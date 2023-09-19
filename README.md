@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @YEGONDOMMY
 - 👀 I’m from Nairobi Kenya 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ..on kipkoechdominic307@gmail.com
+- 💞️ I’m looking to collaborate on trading forex.
+- 📫 How to reach me ..in email kipkoechdominic307@gmail.com
 
 <!---
 YEGONDOMMY/YEGONDOMMY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
